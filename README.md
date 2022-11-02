@@ -21,3 +21,4 @@
 6. Finally, send your github repo link with the final solution to christopher.tri@uac.edu.au to be one of the winners that will join the Accessibility Committee's hall of fame! :trophy:	
 
 **Good luck and have fun!** :grin:
+<img src=”http://clipart-library.com/images/pi7r5GkbT.jpg”>
